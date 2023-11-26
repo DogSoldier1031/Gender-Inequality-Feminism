@@ -6,6 +6,8 @@ Caliban and the Witch by Silvia Federici
 
 https://files.libcom.org/files/Caliban%20and%20the%20Witch.pdf
 
+https://revolutionaryleftradio.libsyn.com/caliban-and-the-witch-an-interview-with-silvia-federici
+
 WHY WOMEN HAVE BETTER SEX UNDER SOCIALISM by KRISTEN R. GHODSEE
 
 https://revolutionaryleftradio.libsyn.com/women-under-socialism
