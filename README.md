@@ -1,3 +1,9 @@
+Alexandra Kollontai
+
+https://www.marxists.org/archive/kollonta/index.htm
+
+https://scholar.harvard.edu/files/kristenghodsee/files/novikova_and_ghodsee_-_alexandra_kollontai.pdf
+
 Angela Davis
 
 https://legalform.files.wordpress.com/2017/08/davis-women-race-class.pdf
